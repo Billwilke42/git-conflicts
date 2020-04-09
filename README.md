@@ -1,4 +1,4 @@
-There was an old woman who lived in a shoe.  
-She had so many children, she didn’t know what to do;  
-She gave them some broth without any bread;  
-Then whipped them all soundly and put them to bed.  
+There was an old man who lived in at Turing.  
+He had so many computers, he didn’t know what to do;  
+he cleaned them up and plugged them in;  
+and then put them to use by hooking them up to multiple moniters.
