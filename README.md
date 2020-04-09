@@ -1,4 +1,4 @@
-There was an old man who lived in at Turing.  
+There was an old dude who lived in a bucket.  
 He had so many computers, he didn’t know what to do;  
-he cleaned them up and plugged them in;  
-and then put them to use by hooking them up to multiple moniters.
+He gave them some squirrels that were cleaned;  
+Then belly rubbed them all soundly and hooked them up to multiple moniters. 
